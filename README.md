@@ -1,3 +1,5 @@
 # discordaccount
 
-current discord account: Noahgg#0001
+current discord account: Noahgg#5319
+
+I GOT FUCKING TERRMED 
